@@ -54,7 +54,7 @@ Worked on multiple client and internal projects, focusing on feature enhancement
 I'm always open to new opportunities, collaborations, and interesting projects!
 
 - 🔗 [LinkedIn](www.linkedin.com/in/furqan-qureshi-1baba3227)
-- 📧 Email: your-email@example.com
+- 📧 Email: furqanahmed.engineer@gmail.com
 
 ---
 
